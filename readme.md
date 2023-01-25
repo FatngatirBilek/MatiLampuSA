@@ -1,4 +1,8 @@
 Aku sayang kamu <3
 #Fathir
 
-![Farel](https://user-images.githubusercontent.com/81058978/214557662-0efff341-677e-495c-8dc7-d0d7cc2e70ed.png)
+FATHIR KONTOL
+KONTOOOL
+
+
+![Farel](https://user-images.githubusercontent.com/81058978/214558553-9515d67a-fc33-4fa1-8b77-c38d30d9abdf.png)
